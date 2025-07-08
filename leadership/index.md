@@ -11,7 +11,7 @@ or by their experience and influence on others.
 * An excellent way to master a topic is to endeavor to teach it well to others.
 
 ### Subordinates
-* Learning is necessary to leadership - strong leaders promote learning
+* Learning is necessary to leadership — strong leaders promote learning
 in subordinates.
 * Leaders recognize that the higher they progress, the more time that they
 must devote to leading others — including others' learning experiences.
